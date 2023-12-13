@@ -5,7 +5,7 @@
  <br/>
  <br/>
   
-####  :clipboard: Once I've Used 
+####  ˁ ˈ ᵕ ˈ ˀ♡ Once I've Used 
   
  <br/>
   
@@ -29,7 +29,7 @@
    <br/>
    <br/>
  
-#### :pencil2: Study log
+#### (´ᴗ ·̫ ᴗ`)💭💕 Study log
  
   <br/>
   
